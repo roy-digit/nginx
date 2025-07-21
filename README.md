@@ -1,2 +1,2 @@
 # nginx
-https://chatgpt.com/share/687e61f1-1d18-8011-8854-96444270ca23
+[https://chatgpt.com/share/687e6296-e8e0-8011-a55c-4d7eb4029ad2]([url](https://chatgpt.com/share/687e6296-e8e0-8011-a55c-4d7eb4029ad2))
